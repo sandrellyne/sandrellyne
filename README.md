@@ -1,4 +1,4 @@
-## boas vinda ao meu perfil 🌻
+## boas vindas ao meu perfil 🌻
 
 meu nome é sandrellyne vasco 
 
