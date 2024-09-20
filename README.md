@@ -2,7 +2,7 @@
 
 meu nome é sandrellyne vasco 
 
--estou estudando na alura 
+- estou estudando na alura 
 - estou me desenvolvendo na linguagem JavaScript
 - ultilizo esse espaço para minha organização e compartilhamento e projetos desenvolvios
 
