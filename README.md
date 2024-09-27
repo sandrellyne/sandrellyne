@@ -11,5 +11,5 @@ meu nome é sandrellyne vasco
   sandrevass@gmail.com
   @sane_vass
 
-  ![](https://media1.tenor.com/m/QKP1_PfrfssAAAAC/fun.gif)
+  ![](https://media1.tenor.com/m/jk8Nt7Il0XUAAAAC/twitch.gif)
   
