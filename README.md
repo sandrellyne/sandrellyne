@@ -7,9 +7,9 @@ meu nome é sandrellyne vasco
 - ultilizo esse espaço para minha organização e compartilhamento e projetos desenvolvios
 
   ## você entrar em contato comigo 📫
+ @sane_vass
 
   sandrevass@gmail.com
-  @sane_vass
-
+ 
   ![](https://media1.tenor.com/m/jk8Nt7Il0XUAAAAC/twitch.gif)
   
